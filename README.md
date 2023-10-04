@@ -1,2 +1,2 @@
 # MY_CERTIFICATES
-All certificates I have earned
+## This page consists of all the certificate earned by me that showcase my diverse skills in different fields and domains.
