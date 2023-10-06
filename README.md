@@ -48,3 +48,5 @@
 ![Machine Learning-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/cfb69ee4-082a-444b-9024-a91a0e80d9fb)
 
 ### Udemy
+
+![Intro to quantum computing](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/4ee54c90-5099-40dc-abaf-b8872d29818e)
