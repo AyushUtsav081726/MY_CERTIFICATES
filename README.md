@@ -46,3 +46,5 @@
 ### Coursera
 
 ![Machine Learning-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/cfb69ee4-082a-444b-9024-a91a0e80d9fb)
+
+### Udemy
