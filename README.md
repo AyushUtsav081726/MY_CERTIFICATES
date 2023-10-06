@@ -38,3 +38,7 @@
 ![Global Tech Advanced Software Engineering Virtual Internship-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/35c64cf0-9b8f-490f-8ba4-4404550d83ba)
 
 ![Data Analytics Consulting Virtual Internship-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/af9954bd-acd1-4447-8ecc-52cbf080c776)
+
+![delloite2-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/e548ac7d-916a-4be6-a1e2-5b88f4cdca9a)
+
+![JPmorgan_certificate_AyushUtsav-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/628b893c-1d33-44e8-b3dd-1507787309a6)
