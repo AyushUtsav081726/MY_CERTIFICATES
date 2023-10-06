@@ -17,6 +17,16 @@
 
 ![Crowd Funding-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/c890f601-2caa-478f-829c-2572805d9678)
 
-### Verzeo virtual Internship
 
 ![Crowdfunding Intern-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/ffa363d2-7156-4dc6-9ef4-24815716684d)
+
+### Verzeo virtual Internship
+
+![AR_VR Course Completion](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/aa48ee60-66e7-430b-8978-a31b36052e3a)
+
+![AR_VR Internship](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/e3a4f056-cd10-48c3-81f8-2d3817027a8f)
+
+![Nanotech_Course Completion](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/46e4fa0f-544d-48cf-8518-d36b25958151)
+
+
+![Nanotech_Internship](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/3cf4764c-24fd-4dfb-b2b4-b5495f2768ae)
