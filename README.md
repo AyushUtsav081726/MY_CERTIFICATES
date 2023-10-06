@@ -55,6 +55,8 @@ Udemy
 
 ![WEB Development](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/eecf4c37-7fcd-4df1-b13b-804cabcce688)
 
+![Quantum computing](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/523eabbd-f95b-4a91-8480-d8020aa6ada1)
+
 
 Other
 
