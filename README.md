@@ -52,3 +52,12 @@
 ![Intro to quantum computing](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/4ee54c90-5099-40dc-abaf-b8872d29818e)
 
 ![Computational Chemistry](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/913fceb2-824b-4f01-b4b9-59fc3f7891ab)
+
+### Other
+
+![Sharpen on SQ](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/29c7d3cd-2cab-48f9-96bf-a8cfaf6a6550)
+
+![Outstanding performance in AISSE](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/0dd0e7fa-9bae-4ca8-8955-5f084450fd90)
+
+![Inter house Song competition](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/a6f02441-f8f4-44cd-9d93-fec0ec5e216a)
+
