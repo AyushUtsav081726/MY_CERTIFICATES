@@ -17,4 +17,6 @@
 
 ![Crowd Funding-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/c890f601-2caa-478f-829c-2572805d9678)
 
+### Verzeo virtual Internship
+
 ![Crowdfunding Intern-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/ffa363d2-7156-4dc6-9ef4-24815716684d)
