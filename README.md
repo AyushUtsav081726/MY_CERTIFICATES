@@ -43,6 +43,8 @@ Forgage virtual internship
 
 ![JPmorgan_certificate_AyushUtsav-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/628b893c-1d33-44e8-b3dd-1507787309a6)
 
+![Data Visualisation_ Empowering Business with effective insights-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/0c83585b-258f-4396-88f4-238c3d4b0fb5)
+
 Coursera
 
 ![Machine Learning-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/cfb69ee4-082a-444b-9024-a91a0e80d9fb)
