@@ -32,3 +32,9 @@
 ![Nanotech_Internship](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/3cf4764c-24fd-4dfb-b2b4-b5495f2768ae)
 
 ### Forgage virtual internship
+
+![Goldman Sachs Engineering Virtual Program-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/0874d568-4b5d-4d50-a560-bc9d49b5c13e)
+
+![Global Tech Advanced Software Engineering Virtual Internship-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/35c64cf0-9b8f-490f-8ba4-4404550d83ba)
+
+![Data Analytics Consulting Virtual Internship-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/af9954bd-acd1-4447-8ecc-52cbf080c776)
