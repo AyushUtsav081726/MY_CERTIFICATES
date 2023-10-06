@@ -15,6 +15,3 @@
 
 ### Crowd Funding Intern at Muskhurahat Foundation
 
-[Crowd Funding.pdf](https://github.com/AyushUtsav081726/MY_CERTIFICATES/files/12833809/Crowd.Funding.pdf)
-
-[Crowdfunding Intern.pdf](https://github.com/AyushUtsav081726/MY_CERTIFICATES/files/12833811/Crowdfunding.Intern.pdf)
