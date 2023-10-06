@@ -44,3 +44,5 @@
 ![JPmorgan_certificate_AyushUtsav-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/628b893c-1d33-44e8-b3dd-1507787309a6)
 
 ### Coursera
+
+![Machine Learning-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/cfb69ee4-082a-444b-9024-a91a0e80d9fb)
