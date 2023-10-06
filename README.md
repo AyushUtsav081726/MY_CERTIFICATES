@@ -50,3 +50,5 @@
 ### Udemy
 
 ![Intro to quantum computing](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/4ee54c90-5099-40dc-abaf-b8872d29818e)
+
+![Computational Chemistry](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/913fceb2-824b-4f01-b4b9-59fc3f7891ab)
