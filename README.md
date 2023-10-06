@@ -14,3 +14,7 @@
 ![Engage7X_Analytics   Data Science-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/2673e409-5108-4d33-89ae-7022f8ca54e7)
 
 ### Crowd Funding Intern at Muskhurahat Foundation
+
+[Crowd Funding.pdf](https://github.com/AyushUtsav081726/MY_CERTIFICATES/files/12833809/Crowd.Funding.pdf)
+
+[Crowdfunding Intern.pdf](https://github.com/AyushUtsav081726/MY_CERTIFICATES/files/12833811/Crowdfunding.Intern.pdf)
