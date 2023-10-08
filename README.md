@@ -59,6 +59,9 @@ Udemy
 
 ![Quantum computing](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/523eabbd-f95b-4a91-8480-d8020aa6ada1)
 
+![Song writing](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/b44effff-19c4-48fe-9853-c0432b19f680)
+
+
 
 Other
 
