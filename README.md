@@ -1,6 +1,8 @@
 # MY_CERTIFICATES
 This page consists of all the certificates earned by me that showcase my diverse skills in different fields and domains.
 
+IIM Skills Content Writing Master Course
+
 Engage 7X Certificates
 
 ![Engage7X_Leadership   Strategy-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/9c9b7740-976b-4f6b-bbe2-82a0ac07b1f9)
