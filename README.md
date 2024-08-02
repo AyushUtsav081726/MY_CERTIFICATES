@@ -20,6 +20,9 @@ Engage 7X Certificates
 
 Social Entrepreneur at Hamari Pahchan
 
+![ayush utsav (1) pdf and 1 more page - Personal - Microsoft​ Edge 02-08-2024 16_17_36](https://github.com/user-attachments/assets/18e1238e-44b3-46a3-a8d6-02b212d7efe3)
+
+
 Crowd Funding Intern at Muskhurahat Foundation
 
 ![Crowd Funding-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/c890f601-2caa-478f-829c-2572805d9678)
