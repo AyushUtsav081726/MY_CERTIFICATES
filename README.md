@@ -18,6 +18,8 @@ Engage 7X Certificates
 
 ![Engage7X_Analytics   Data Science-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/2673e409-5108-4d33-89ae-7022f8ca54e7)
 
+Social Entrepreneur at Hamari Pahchan
+
 Crowd Funding Intern at Muskhurahat Foundation
 
 ![Crowd Funding-1](https://github.com/AyushUtsav081726/MY_CERTIFICATES/assets/146926286/c890f601-2caa-478f-829c-2572805d9678)
